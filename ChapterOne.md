@@ -26,48 +26,54 @@ He got onto his three toed feet quietly, always on the alert for danger. He quic
 
 12 Shoo Git, sleeping hungrily and fitfully.
 
-13 Shoo Git, in the morning, hearing a rooster crow.
-
-14 Shoo Git, not much after that, on the edge of the woods and farmland, looking for enemies and seeking the source of the noise.
-
-15 Shoo Git, hiding, observing a farmer weeding and hoeing.
-
-16 Shoo Git, exploring, skulking about the farm.
-
-17 Shoo Git, discovering the hen-house.
-
-18 Shoo Git, running away with a chicken while the other chickens raise the alarm.
-
-19 Shoo Git, evading farmers, running into the woods.
-
-20 Shoo Git, hiding from hunters, in the woods.
-
-21 Shoo Git, taking a respite in the hollowed tree, eating the chicken.
-
-22 Shoo Git, the next night, at the hen house, cautiously exploring.
-
-23 Shoo Git, discovering a snare, taking the device.
-
-24 Shoo Git, discovering a baited deadfall, figuring out its mechanism.
-
-25 Shoo Git, deliberately tripping a deadfall harmlessly.
-
-26 Shoo Git, eating the bait from the dead fall.
-
-27 Shoo Git, retreated to the woods.
-
-28 Shoo Git, having set the snare along a rabbit path.
-
-29 Shoo Git, sleeping in the tree hollow.
-
-30 Shoo Git, eating snared rabbit for breakfast.
-
-31 Shoo Git, hearing dogs and approaching hunters.
-
 # Scene II
+
+(introduce Leutfrid Oakenbottom, escape from Leubast Silverstring)
 
 # Scene III
 
+1 Shoo Git, in the morning, hearing a rooster crow.
+
+2 Shoo Git, not much after that, on the edge of the woods and farmland, looking for enemies and seeking the source of the noise.
+
+3 Shoo Git, hiding, observing a farmer weeding and hoeing.
+
+4 Shoo Git, exploring, skulking about the farm.
+
+5 Shoo Git, discovering the hen-house.
+
+6 Shoo Git, running away with a chicken while the other chickens raise the alarm.
+
+7 Shoo Git, evading farmers, running into the woods.
+
+8 Shoo Git, hiding from hunters, in the woods.
+
+9 Shoo Git, taking a respite in the hollowed tree, eating the chicken.
+
+10 Shoo Git, the next night, at the hen house, cautiously exploring.
+
+11 Shoo Git, discovering a snare, taking the device.
+
+12 Shoo Git, discovering a baited deadfall, figuring out its mechanism.
+
+13 Shoo Git, deliberately tripping a deadfall harmlessly.
+
+14 Shoo Git, eating the bait from the dead fall.
+
+15 Shoo Git, retreated to the woods.
+
+16 Shoo Git, having set the snare along a rabbit path.
+
+17 Shoo Git, sleeping in the tree hollow.
+
 # Scene IV
 
+(Leutfrid continues, trying to make his way in the wilderness)
+
 # Scene V
+
+(shoo and leutfrid meet)
+
+X Shoo Git, eating snared rabbit for breakfast.
+
+X Shoo Git, hearing dogs and approaching hunters.

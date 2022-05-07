@@ -4,7 +4,7 @@ Runt of the Tribe, for such was his designator and served approximately the same
 
 He sprinted to the hedge and crouched low to the ground, continuing to fiercely watch for his Enemies, but allowing his body to rest, to breathe. The Enemy still did not emerge, so Runt of Tribe waited. His heart calmed, as did his breathing. Maybe they had gotten lost? *That’s impossible*, thought Runt, *The tunnel is completely straight, with no turns or twists or branches.* He waited patiently, but eventually the pain in his leg and tail wounds pained him enough to take his attention away from the tunnel’s entrance.
 
-3 Shoo Git, wounds cleansed by saliva, unconscious, hiding in a bush.
+He licked his wounds with his forked tongue, still momentarily glancing back to where he expected the Enemies to show up at any moment. The coppery taste of the blood reminded him that he still had not managed to eat today, though he was glad that he had not yet become someone else’s meal. At least, not yet. A few moments later, his wounds were cleaned. None of them were life threatening, and his various scars, though hidden under his feathers, bore testimony to the fact that he had suffered worse before. Eventually his exhaustion got the better of him, and he fell unconscious.
 
 4 Shoo Git, checking for enemies and predators, hiding in a bush, mid-afternoon, feeling hungry.
 

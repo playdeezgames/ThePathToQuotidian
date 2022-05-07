@@ -10,7 +10,9 @@ He awoke with a start. The sun had moved. He had not meant to sleep at all. Stil
 
 He cocked his head to the side, listening intently for tell tale signs of Prey, in whatever form it might be here. He could not afford to be picky today. Within moments, he heard birdsong, and that singer of that song landed on the grass near his hiding place, foraging for bugs and worms.
 
-6 Shoo Git, remaining silent, waiting.
+*Prey!* he thought. He tensed his muscles, readying for a pounce. But before he could do so, the bird, with a fat earthworm in its beak, jumped up and flew towards a nearby wooded area. While disappointed that his meal was delayed, Runt knew that this meant something important: this bird had a nest nearby, and that nest had  fledgling in it - a nice juicy fledgeling.
+
+He got onto his three toed feet quietly, always on the alert for danger. He quickly ran into the wooded area he had seen the bird fly into. Finding another stealthy hiding spot, he listened some more. His mouth salivated at the thought of tearing open the fledgeling with his fangs and swallowing it mostly whole into his gullet. That would be a mighty fine meal indeed. But for now, he listened and waited. His patience, he was certain, would be rewarded.
 
 7 Shoo Git, climbing a tree, seeking the nest, feeling hungry.
 

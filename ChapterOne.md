@@ -61,3 +61,11 @@ Shoo Git, sleeping in the tree hollow.
 Shoo Git, eating snared rabbit for breakfast.
 
 Shoo Git, hearing dogs and approaching hunters.
+
+# Scene II
+
+# Scene III
+
+# Scene IV
+
+# Scene V

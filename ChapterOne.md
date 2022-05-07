@@ -2,7 +2,7 @@
 
 Runt of the Tribe, for such was his designator and served approximately the same purpose as a name in human society, continued to run as quickly as he could down the tunnel. His heart beat rapidly and felt ready to give out at any time. The wounds on his leg and tail still bled, matting down his feathers, but he could not stop, for the Enemies pursued him to finish the job and feast on his flesh. Ahead of him, he saw a light, and he pushed his aching muscles to go even faster. He burst into the bright noonday sunlight, and kept running. He squinted as his eyes adjusted to the bright exterior lights, attempting to figure out where in the Bog he was. But he was not in the Bog, it seemed, or at least, not in any part of the Bog that he was familiar with. The air was drier here, the land firmer and covered in grass. Nearby he spotted a hedge that he could hide in. He quickly turned his head to glance back at the tunnel he had exited. His pursuers had not emerged. That was a stroke of luck.
 
-Shoot Git, hiding in a nearby bush, wounds untended, resting, watching for pursuit.
+He sprinted to the hedge and crouched low to the ground, continuing to fiercely watch for his Enemies, but allowing his body to rest, to breathe. The Enemy still did not emerge, so Runt of Tribe waited. His heart calmed, as did his breathing. Maybe they had gotten lost? *That’s impossible*, thought Runt, *The tunnel is completely straight, with no turns or twists or branches.* He waited patiently, but eventually the pain in his leg and tail wounds pained him enough to take his attention away from the tunnel’s entrance.
 
 Shoo Git, wounds cleansed by saliva, unconscious, hiding in a bush.
 

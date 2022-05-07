@@ -8,7 +8,7 @@ He licked his wounds with his forked tongue, still momentarily glancing back to 
 
 He awoke with a start. The sun had moved. He had not meant to sleep at all. Still hidden in the bush, he checked the area. Had the enemy found him, they would have killed and eaten him, so they had forgotten him or found something else to hunt. Runt did not care, because he lived still. But he was still hungry, and now even more ravenously. His flight had depleted his energy reserves, and he would need to eat soon or be in real trouble. Still not willing to depart from his safe hiding spot, he looked between the leaves and branches at the region around him, and was immediately reminded that he was no longer in the Bog, where he might have easily found puddles filled with Prey.
 
-5 Shoo Git, exploring the woods, looking for food, feeling hungry, hearing a parent bird return to its nest.
+He cocked his head to the side, listening intently for tell tale signs of Prey, in whatever form it might be here. He could not afford to be picky today. Within moments, he heard birdsong, and that singer of that song landed on the grass near his hiding place, foraging for bugs and worms.
 
 6 Shoo Git, remaining silent, waiting.
 

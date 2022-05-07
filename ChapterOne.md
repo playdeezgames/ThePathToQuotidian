@@ -6,7 +6,7 @@ He sprinted to the hedge and crouched low to the ground, continuing to fiercely 
 
 He licked his wounds with his forked tongue, still momentarily glancing back to where he expected the Enemies to show up at any moment. The coppery taste of the blood reminded him that he still had not managed to eat today, though he was glad that he had not yet become someone else’s meal. At least, not yet. A few moments later, his wounds were cleaned. None of them were life threatening, and his various scars, though hidden under his feathers, bore testimony to the fact that he had suffered worse before. Eventually his exhaustion got the better of him, and he fell unconscious.
 
-4 Shoo Git, checking for enemies and predators, hiding in a bush, mid-afternoon, feeling hungry.
+He awoke with a start. The sun had moved. He had not meant to sleep at all. Still hidden in the bush, he checked the area. Had the enemy found him, they would have killed and eaten him, so they had forgotten him or found something else to hunt. Runt did not care, because he lived still. But he was still hungry, and now even more ravenously. His flight had depleted his energy reserves, and he would need to eat soon or be in real trouble. Still not willing to depart from his safe hiding spot, he looked between the leaves and branches at the region around him, and was immediately reminded that he was no longer in the Bog, where he might have easily found puddles filled with Prey.
 
 5 Shoo Git, exploring the woods, looking for food, feeling hungry, hearing a parent bird return to its nest.
 

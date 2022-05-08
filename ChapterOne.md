@@ -28,7 +28,7 @@ The sun was getting low, and he had shelter to consider. He briefly thought abou
 
 Fortunately, he soon found a dying tree with a hollow in its trunk large enough for him to squeeze into. Wisely, he first picked up a long stick to poke into it in order to check if this tree already had a resident. To his relieve it did not. He slid into the hollow, scratching out some of the interior to shove against the inlet to his cozy space. It was not comfortable, but in the morning he would find something to pad the inside.
 
-12 Shoo Git, sleeping hungrily and fitfully.
+In the darkness, with the unfamiliar night insects buzzing their song, and hungry and cold Runt slept in the hollow of the tree, safe for the moment. He had lived another day. But would he survive tomorrow?
 
 # Scene II
 

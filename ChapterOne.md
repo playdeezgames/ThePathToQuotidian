@@ -24,7 +24,9 @@ Fish did come, of course, but they were both too fast and too small for him to c
 
 As the shadows were getting long as the sun set, he finally allowed practicality to enter into his food solutions. As a whole, he did not care for worms and grubs, but it was not the first time he had need of making use of this food resource in his life, and he figured it woult unlikely be his last if his luck did not change. He found several rocks and fallen logs to look under, and made a modest wriggling meal of the slimy, squishy creatures he found beneath it. At least he wouldn't starve, but tonight he would not sleep with a full belly, either.
 
-11 Shoo Git, at nightfall, finds a hollow in a tree.
+The sun was getting low, and he had shelter to consider. He briefly thought about the tunnel he had run through, but discarded the idea immediately. He had not revisited that area since entering the woods. The Enemies might have finally arrived, or be lurking within. He also rejected the idea of spending the night in a tree, lest any other birds find him an intruder and attack him. He set out desperately looking for a place in which to sleep. It was getting dark.
+
+Fortunately, he soon found a dying tree with a hollow in its trunk large enough for him to squeeze into. Wisely, he first picked up a long stick to poke into it in order to check if this tree already had a resident. To his relieve it did not. He slid into the hollow, scratching out some of the interior to shove against the inlet to his cozy space. It was not comfortable, but in the morning he would find something to pad the inside.
 
 12 Shoo Git, sleeping hungrily and fitfully.
 

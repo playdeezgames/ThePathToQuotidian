@@ -22,7 +22,7 @@ He backed away slowly, longingly looking back to the tree holding a delicious me
 
 Fish did come, of course, but they were both too fast and too small for him to catch. He caught a few morsels, and gobbled their meagre offering greedily. They were no fat fledglings, but he could not be choosy at this point.
 
-10 Shoo Git, frustrated, lifting stones and falling logs, eating worms and bugs.
+As the shadows were getting long as the sun set, he finally allowed practicality to enter into his food solutions. As a whole, he did not care for worms and grubs, but it was not the first time he had need of making use of this food resource in his life, and he figured it woult unlikely be his last if his luck did not change. He found several rocks and fallen logs to look under, and made a modest wriggling meal of the slimy, squishy creatures he found beneath it. At least he wouldn't starve, but tonight he would not sleep with a full belly, either.
 
 11 Shoo Git, at nightfall, finds a hollow in a tree.
 

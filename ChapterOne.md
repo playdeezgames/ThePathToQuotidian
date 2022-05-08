@@ -18,7 +18,9 @@ The wait felt like forever, though it was only a few moments, and he heard a rus
 
 Suddenly he heard a screeching sound, and before he could turn to look for its origin, the mother bird had attacked his head, leaving a scratch near his eye. Now he could see his attacker, and he saw that it was not the mother bird. This bird had brighter plumage and was bigger. The father, then. He had picked a type of bird where both parents participated in the raising of their young.  Momentarily, another screech as the mother had been alerted and returned to the nest area, and he fended them off as best he could, but it was clear that the fledgelings would not be on the menu this afternoon. The parent birds did not stop pestering him until he had put a safe distance between himself and the tree. 
 
-9 Shoo Git, exploring a stream, attempting to catch fish with his bare hands.
+He backed away slowly, longingly looking back to the tree holding a delicious meal that he was being denied. His hunger burned more fiercely in his belly. He was getting desperate. He stumbled backwards and found himself having fallen across a small stream. It was only ankle deep, and not so wide that he could not jump over it with a short run. But streams meant fish, and fish meant food, so Runt found his way upstream to where the water flowed more slowly and shallowly, and stood over the water, waiting for fish to wander by unaware.
+
+Fish did come, of course, but they were both too fast and too small for him to catch. He caught a few morsels, and gobbled their meagre offering greedily. They were no fat fledglings, but he could not be choosy at this point.
 
 10 Shoo Git, frustrated, lifting stones and falling logs, eating worms and bugs.
 

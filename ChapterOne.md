@@ -52,7 +52,7 @@ The four men looked at each other and chuckled. Then the biggest one, now confir
 
 The leader continued, "We request only a small donation, a trifle really, for we have fallen upon hard times. Our families don't have enough to eat, with all of the Ralatlan refugees in the area. Food has become very expensive. You wouldn't want us to starve to death, would you?" All this while, the others were gripping their weapons nervously, shifting their weights back and forth on their legs. Leubast knew they were readying to attack, no matter how big her "donation" was. 
 
-6 Leubast Silverstring, refusing and drawing her sword.
+Leubast jumped to her feet atop of the cart and drew her shortsword, holding it at the ready. "Not a penny for a group of pathetic bandits like you!" she bellowed. They had angered her, and they were disorganized and untrained. She hoped that if she managed to wound the leader, the rest would run off. It was a risk, but she saw no other choice. Besides, if they freed the captive, or even ungagged him... she hated to consider the consequences.
 
 7 Bandits attacking. The pony spooking and running. Leutfrid as a terrified passenger of an out of control cart.
 

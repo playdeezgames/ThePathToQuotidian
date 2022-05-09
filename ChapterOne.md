@@ -32,7 +32,40 @@ In the darkness, with the unfamiliar night insects buzzing their song, and hungr
 
 # Scene II
 
-(introduce Leutfrid Oakenbottom, escape from Leubast Silverstring)
+1 Leutfrid Oakbottom, bound and gagged, riding in a prisoner wagon. 
+Leubast Silverstring, driving a single pony pulling the prisoner wagon.
+
+2 Leutfrid Oakbottom, struggling to escape his bonds. Leubast Silverstring advising saving his strength for this tribunal.
+
+3 Leutfrid Oakbottom, imagining his tribunal and the likely punishment thereof.
+
+4 Leubast Silverstring, suddenly stopping the cart. Leutfrid Oakbottom, jarred by the studden stoppage, complaining while muffled. Bandits appearing on the path.
+
+5 Leubast Silverstring, demanding free passage. Bandits, asking for a bribe in the form of a toll.
+
+6 Leubast Silverstring, refusing and drawing her sword.
+
+7 Bandits attacking. The pony spooking and running. Leutfrid as a terrified passenger of an out of control cart.
+
+8 Bandits split between chasing the cart and fighting Leubast. Leubast standing her ground.
+
+9 Leutfrid, tumbling as the cart tips after a wheel hitting a rock.
+
+10 Leutfrid, noticing that the cart was now open.
+
+11 Leutfrid, running and looking for a place to hide.
+
+12 Leutfrid, taking refuge in a wooded area, still bound and gagged.
+
+13 Leutfrid, his gag removed, uttering a spell. His bonds disintegrated.
+
+14 Leutfrid, running into the woods.
+
+15 Leutfrid, finding a dead bird.
+
+16 Leutfrid, reanimating the bird and using it to scout for pursuers.
+
+17 Leutfrid, sleeping under a pile of leaves.
 
 # Scene III
 
@@ -48,9 +81,11 @@ In the darkness, with the unfamiliar night insects buzzing their song, and hungr
 
 6 Shoo Git, running away with a chicken while the other chickens raise the alarm.
 
-7 Shoo Git, evading farmers, running into the woods.
+7 Shoo Git, evading farmers, running into the woods. Sudden bird harrasses farmers and they give up pursuit.
 
-8 Shoo Git, hiding from hunters, in the woods.
+8 Shoo Git, hiding from hunters, in the woods, noticing zombie bird.
+
+8.5 Attempt to catch zombie bird, which escapes.
 
 9 Shoo Git, taking a respite in the hollowed tree, eating the chicken.
 
@@ -72,12 +107,56 @@ In the darkness, with the unfamiliar night insects buzzing their song, and hungr
 
 # Scene IV
 
-(Leutfrid continues, trying to make his way in the wilderness)
+1 Leutfrid, using a zombie bird to scout for food. 
+
+2 Zombie bird spotting berries.
+
+3 Leutfrid, considering his options as he travels to the berry bush.
+
+4 Leutfrid, harvesting berries.
+
+5 Zombie bird scouting a farm.
+
+6 Leutfrid, lamenting his inability to negotiate with the farmers.
+
+7 Zombie bird spotting Shoo Git.
+
+8 Zombie bird assisting in the escape of Shoo Git.
+
+9 Zombie bird watching Shoo Git
+
+10 Zombie bird escaping.
+
+11 Leutfrid, foraging for nuts and mushrooms.
+
+12 Leutfrid, constructing a lean-to.
+
+13 Leutfrid, hunting game birds with rocks.
+
+14 Leutfrid, risking a small fire.
+
+15 Leutfrid, sleeping another night.
 
 # Scene V
 
-(shoo and leutfrid meet)
+1 Shoo Git, eating snared rabbit for breakfast.
 
-X Shoo Git, eating snared rabbit for breakfast.
+2 Shoo Git, hearing dogs and approaching hunters.
 
-X Shoo Git, hearing dogs and approaching hunters.
+3 Shoo Git, hiding in his tree hollow as the hunters pass.
+
+4 Shoo Git, following the hunters at a safe distance.
+
+5 Hunters, discovering the camp of Leutfrid abandoned. Shoo Git observes.
+
+6 Hunters, splitting up to spread out their search after wrecking the camp. Shoo Git observes.
+
+7 Shoo Git returns to his tree hollow to find leutfrid within.
+
+8 Shoo Git decides that leutfrid is not Enemy, and may be Friend, or even Tribe.
+
+9 Leutfrid demonstrates his necromantic abilities. Shoo Git is fearful, but curious.
+
+10 Leutfrid connects semi-telepathically to Shoo Git, and teaches a few words.
+
+11 The two decide to cooperate.

@@ -42,7 +42,9 @@ Once more in desperation, Leutfrid twisted his bonds and attempted to free his m
 
 His tribunal. Leutfrid dreaded it. Tlakkans were for the most part merciful and lenient about most crimes, but certain heinous crimes were still met with traditional, brutal punishment. Such was his crime, for Leutfrid was a Voidmage - colloquially a necromancer. It was a very rare thing for a Tlakkan to have any magical talents at all, and when they did, it was almost always that of an Airmage, an Earthmage, or a Lightmage. No Voidmages had appeared in recent Tlakkan history, until Leutfrid.
 
-4 Leubast Silverstring, suddenly stopping the cart. Leutfrid Oakbottom, jarred by the studden stoppage, complaining while muffled. Bandits appearing on the path.
+Leubast pulled on the reigns to make Izzy stop. Leutfrid protested with a muffled yell as he hit his head against the front of the cage. "Quiet," she hissed at her captive. He was quiet.
+
+She counted four men standing across the path blocking her way. He peripheral vision caught a fifth skulking about in the brush. She moved her hand slowly to loosen the shortsword at her hip. The men were dirty, and all of average human height except for one. She figured him to be the leader. They all held clubs and staves. This was an isolated area in the road, in between two hills. No other traffic around. 
 
 5 Leubast Silverstring, demanding free passage. Bandits, asking for a bribe in the form of a toll.
 

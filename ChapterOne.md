@@ -32,8 +32,9 @@ In the darkness, with the unfamiliar night insects buzzing their song, and hungr
 
 # Scene II
 
-1 Leutfrid Oakbottom, bound and gagged, riding in a prisoner wagon. 
-Leubast Silverstring, driving a single pony pulling the prisoner wagon.
+The prisoner, whose name was Leutfrid Oakbottom, was bound and gagged withing a prisoner cart. He was a Tlakkan, and like most of his kind stood, when such standing was possible, just shy of three and a half feet tall. His hair, on both head and feet, was an unremarkable curly brown, and his eyes was a nondescript brown. He was, in short, not very threatening to behold, and one would wonder why he needed to be imprisoned in this precise fashion.
+
+The driver of the cart's name was Leubast Silverstring, a Tlakkan ranger. She was just over three feet, with, long brown hair tied back in a pony tail and green eyes. Pretty for a Tlakkan, but with a ferocity to her face that made even the most bravely amorous Tlakkan men think twice before approaching. She was a bounty hunter by trade, and turning in  this bounty would afford her and upgrade in equipment, especially a new pony to replace Treasure, who was old and long overdue for retirement.
 
 2 Leutfrid Oakbottom, struggling to escape his bonds. Leubast Silverstring advising saving his strength for this tribunal.
 

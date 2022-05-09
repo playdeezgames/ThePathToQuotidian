@@ -46,7 +46,11 @@ Leubast pulled on the reigns to make Izzy stop. Leutfrid protested with a muffle
 
 She counted four men standing across the path blocking her way. He peripheral vision caught a fifth skulking about in the brush. She moved her hand slowly to loosen the shortsword at her hip. The men were dirty, and all of average human height except for one. She figured him to be the leader. They all held clubs and staves. This was an isolated area in the road, in between two hills. No other traffic around. 
 
-5 Leubast Silverstring, demanding free passage. Bandits, asking for a bribe in the form of a toll.
+Reaching into her vest, she pulled out a scroll with the details of her bounty. "I demand that you let me pass," she said with a forced confidence, "I am on official business for the Confederacy of Tlak, and they will take a dim view of your causing me delay."
+
+The four men looked at each other and chuckled. Then the biggest one, now confirmed to be the leader, gave and exaggerated and mocking bow. "Pardon us poor peasants, m'lady," his tone dripped with contempt as he straightened, "we have no intention on keeping you from your official business." But they did not move, and she glowered at them.
+
+The leader continued, "We request only a small donation, a trifle really, for we have fallen upon hard times. Our families don't have enough to eat, with all of the Ralatlan refugees in the area. Food has become very expensive. You wouldn't want us to starve to death, would you?" All this while, the others were gripping their weapons nervously, shifting their weights back and forth on their legs. Leubast knew they were readying to attack, no matter how big her "donation" was. 
 
 6 Leubast Silverstring, refusing and drawing her sword.
 

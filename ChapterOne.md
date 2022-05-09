@@ -36,7 +36,9 @@ The prisoner, whose name was Leutfrid Oakbottom, was bound and gagged withing a 
 
 The driver of the cart's name was Leubast Silverstring, a Tlakkan ranger. She was just over three feet, with, long brown hair tied back in a pony tail and green eyes. Pretty for a Tlakkan, but with a ferocity to her face that made even the most bravely amorous Tlakkan men think twice before approaching. She was a bounty hunter by trade, and turning in  this bounty would afford her and upgrade in equipment, especially a new pony to replace Treasure, who was old and long overdue for retirement.
 
-2 Leutfrid Oakbottom, struggling to escape his bonds. Leubast Silverstring advising saving his strength for this tribunal.
+Once more in desperation, Leutfrid twisted his bonds and attempted to free his mouth from the gag. He flailed about until his wrists hurt and his hair damp with sweat, to no avail. The knots were too expertly tied. There would be no escape for him.
+
+"You ought to save your strength for yer tribunal," Leubast taunted, smiling lightly to herself. She had tied those expert knots. She was a bounty hunter who knew her business, and for a bounty with this high of a reward, she had triple checked her work.
 
 3 Leutfrid Oakbottom, imagining his tribunal and the likely punishment thereof.
 

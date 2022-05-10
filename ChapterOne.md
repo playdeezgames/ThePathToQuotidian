@@ -62,9 +62,15 @@ Izzy did as ponies do when faced with the unexpected. She spooked and started to
 
 The other three ran off after the cart. The leader eyed her up, switching grips on his club. He was waiting for something, she thought. Then he looked past her shoulder, and too late she remembered the fifth bandit. Before she could turn, something hard hit her in the side of the head, and she was knocked out.
 
-9 Leutfrid, tumbling as the cart tips after a wheel hitting a rock.
+Meanwhile, Leutfrid was getting battered and bruised on the uneven road as it careened out of control without a driver and a panicking pony. The cart wheel did not take long to find a large rock at the side of the road to tip it over in a noisy crash that knocked the wind out of Leutfrid's lungs.
 
-10 Leutfrid, noticing that the cart was now open.
+Stunned and gasping for air, he struggled to sit up. The cage was on its side, and the hinges holding on the door in the back were broken. He could get out! Immediately he tried to stand, then remembered that his feet were bound as well as his hands. He could hear the bandits approaching, and knew that he didn't have much time before they would find him.
+
+He wormed his way to the back of the cage. A jagged piece of metal was in the frame of where the cage door had been. He attempted to lift his legs high enough to use the edge to cut his bonds, but alas, he just could not reach.
+
+The bandits were within view. In a moment, his window for escape and freedom would close permanently. He considered his options. On one hand, he had no guarantee that the bandits would not kill him, but on the other hand, he was heading towards a tribunal that would have burned him at the stake.
+
+He decided, instead, to play dead. He lay still and quiet, barely daring more than a shallow breath. He doubted it would work, but forced his mind to remain calm as the bandits arrived and ransacked the cart. Mostly they concentrated on the pony and Leubast's strongboxes.
 
 11 Leutfrid, running and looking for a place to hide.
 

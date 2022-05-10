@@ -72,11 +72,13 @@ The bandits were within view. In a moment, his window for escape and freedom wou
 
 He decided, instead, to play dead. He lay still and quiet, barely daring more than a shallow breath. He doubted it would work, but forced his mind to remain calm as the bandits arrived and ransacked the cart. Mostly they concentrated on the pony and Leubast's strongboxes.
 
-11 Leutfrid, running and looking for a place to hide.
+Once they had looted the front of the cart, they made their way to the back. "What about him?" one of them asked. "I think he's dead." said the other, poking Leutfrid with a stick. He managed not to react. "What to do with a dead Tlakkan?" asked the third.
 
-12 Leutfrid, taking refuge in a wooded area, still bound and gagged.
+They were not a sophisticated lot, but they knew better than to leave evidence of their crime on the side of the road. From their conversation, Leutfrid came to know that one of the wagon wheels was broken, so the cart was mostly a loss. They righted it so that the three wheels could be used, and Leutfrid nearly let out a sound as he was thrown from the side to the floor of the cage again. They then pushed the cart back into the brush to conceal it from a passer by, and cut a few branches to further conceal it.
 
-13 Leutfrid, his gag removed, uttering a spell. His bonds disintegrated.
+Then the bandits departed. His trick had worked, but they might come back. He waited long, agonizing minutes to be certain that they had gone for good before reassessing his situation. From the current orientation of the cage, he could reach the jagged edge, and he did so, unbinding his hands. The rope was stout and well tied. Leubast had known her business! But eventually he got the job done, and was able to remove his gag.
+
+Moving his hands and uttering a small enchantment caused his foot bindings to dissolve by rotting away. The fibers were once living plants, and so responded to his death magic almost immediately. So he was free, but he needed to put distance between him and any potential pursuers.
 
 14 Leutfrid, running into the woods.
 

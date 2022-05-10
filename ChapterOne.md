@@ -54,9 +54,13 @@ The leader continued, "We request only a small donation, a trifle really, for we
 
 Leubast jumped to her feet atop of the cart and drew her shortsword, holding it at the ready. "Not a penny for a group of pathetic bandits like you!" she bellowed. They had angered her, and they were disorganized and untrained. She hoped that if she managed to wound the leader, the rest would run off. It was a risk, but she saw no other choice. Besides, if they freed the captive, or even ungagged him... she hated to consider the consequences.
 
-7 Bandits attacking. The pony spooking and running. Leutfrid as a terrified passenger of an out of control cart.
+Her boldness caught all but the leader off guard. She figured that most of their victims simply gave them whatever they wanted, but Leubast took her duty seriously. She would bring in the bounty, or die trying.
 
-8 Bandits split between chasing the cart and fighting Leubast. Leubast standing her ground.
+"You decided to make it fun for me, then," sneered the leader. He seemed a sadistic brute, the perfect front man for this bandit troupe. He strode up to the pony and smacked Izzy on her rear with his club.
+
+Izzy did as ponies do when faced with the unexpected. She spooked and started to run. Leubast found herself off balance and toppled to the ground. Quickly, she got back to her feet to square off against the leader, who was shouting, "After the cart, lads! I'll have a little dance with this little one." 
+
+The other three ran off after the cart. The leader eyed her up, switching grips on his club. He was waiting for something, she thought. Then he looked past her shoulder, and too late she remembered the fifth bandit. Before she could turn, something hard hit her in the side of the head, and she was knocked out.
 
 9 Leutfrid, tumbling as the cart tips after a wheel hitting a rock.
 

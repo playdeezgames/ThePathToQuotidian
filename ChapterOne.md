@@ -1,5 +1,3 @@
-# Scene I
-
 Runt of the Tribe, for such was his designator and served approximately the same purpose as a name in human society, continued to run as quickly as he could down the tunnel. His heart beat rapidly and felt ready to give out at any time. The wounds on his leg and tail still bled, matting down his feathers, but he dared not stop, for the Enemies pursued him to finish their job of killing him and feast on his flesh. Ahead of him, he saw a light, and he pushed his aching muscles to go even faster. He burst into the bright noonday sunlight and kept running. He squinted as his eyes adjusted to the bright exterior lights, attempting to figure out where in the Bog he was. But he was not in the Bog, it seemed, or at least, not in any part of the Bog that he was familiar with. The air was drier here, the land firmer and covered in grass. Nearby he spotted a hedge that he could hide in. He quickly turned his head to glance back at the tunnel he had exited. His pursuers had not emerged. That was a stroke of luck.
 
 He sprinted to the hedge and crouched low to the ground, continuing to fiercely watch for his Enemies, but allowing his body to rest, to breathe. The Enemy still did not emerge, so Runt of Tribe waited. His heart calmed, as did his breathing. Maybe they had gotten lost? *That’s impossible*, thought Runt, *The tunnel is completely straight, with no turns or twists or branches.* He waited patiently, but eventually his leg and tail wounds pained him enough to take his attention away from the tunnel’s entrance.
@@ -30,7 +28,7 @@ Fortunately, he soon found a dying tree with a hollow in its trunk large enough 
 
 In the darkness, with the unfamiliar night insects buzzing their song, and hungry and cold Runt slept in the hollow of the tree, safe for the moment. He had lived another day. But would he survive tomorrow?
 
-# Scene II
+* * *
 
 The prisoner, whose name was Leutfrid Oakbottom, was bound and gagged withing a prisoner cart. He was a Tlakkan, and like most of his kind stood, when such standing was possible, just shy of three and a half feet tall. His hair, on both head and feet, was an unremarkable curly brown, and his eyes was a nondescript brown. He was, in short, not very threatening to behold, and one would wonder why he needed to be imprisoned in this precise fashion.
 

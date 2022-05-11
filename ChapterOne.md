@@ -78,15 +78,27 @@ Then the bandits departed. His trick had worked, but they might come back. He wa
 
 Moving his hands and uttering a small enchantment caused his foot bindings to dissolve by rotting away. The fibers were once living plants, and so responded to his death magic almost immediately. So he was free, but he needed to put distance between him and any potential pursuers.
 
-14 Leutfrid, running into the woods.
+Circulation had been somewhat cut off from his hands and feet, so they were somewhat numb, but he forced himself to exit the cart, plopping into an undignified heap on the ground. He got to his feet despite soreness, numbness, and pain. He had to get moving. He limped quickly into the woods, and did not stop until he was deep in the earthy, damp darkness provided by the shade of the taller trees.
 
-15 Leutfrid, finding a dead bird.
+He was free for now, but his freedom would do him no good if he starved to death. He needed shelter, water, and food, in that order. To find them, he would need help.
 
-16 Leutfrid, reanimating the bird and using it to scout for pursuers.
+He picked his way through the dense trees, looking for a suitable dead animal to become his thrall. He hoped he could find a mostly intact specimen, but he would do with a three legged rabbit with both ears and one eye chewed out if he could find one.
 
-17 Leutfrid, sleeping under a pile of leaves.
+Within short order, he happened upon a dead bird. Its neck was broken by another animal, and had not lain there for more than a few hours. In the ground around it, there were tracks of two animals, though he knew not which. Apparently one animal had hunted the bird, but the next animal was hunting the hunter. In either case, he was grateful that the bird was in good shape and not torn to pieces.
 
-# Scene III
+He held it in his hands, uttering the phrases that would bring the animal back to a semblance of life and link his senses to its senses. The bird stood up, now undead and subject to the bidding of Leutfrid. 
+
+He closed his eyes and concentrated, willing the bird to fly up above the trees and scout the area. The bird flapped uselessly and fell to the ground. He picked it up and tried again, concentrating harder. The bird flew straight into the trunk of a large tree and tumbled to the ground again.
+
+Frustrated, but knowing that stress would interfere with his link and control, he sat down and concentrating on breathing in a controlled manner. After a few more falters, he could command the bird to flap up to a higher branch. He would have to take the ability to do large jumps of this kind until he could gain the mastery necessary, if ever he did. Remote controlling the undead was difficult, especially one with a mode of travel so drastically different than his own.
+
+Within a few hours, he had located some acorns and other nuts to eat. He opened them with a couple of stones and ate them without roasting. They were not delicious, but he had been malnourished before the episode with the bandits, and using voidmagic was fatiguing, so he needed the energy desperately.
+
+As night fell, he found a few trees grown closely together that he could squeeze between and cover himself with leaves for the night. It would not be comfortable, and he hoped it did not rain, for that would be miserable.  A small creek was nearby and he drank. It was moving water, not stagnant, and he hoped he would avoid illness this way.
+
+Alone in the darkness, he took stock of his situation and options. He could not go east to Tlak, that was certain. He would have to remain in human lands, but there was a war in Ralatlan, the area from which Leubast had been taking him. He smiled lightly to himself. Long term plans would have to wait. It was better to worry about the next few days of just surviving. With that, he managed to fall into a fitful sleep.
+
+* * *
 
 1 Shoo Git, in the morning, hearing a rooster crow.
 

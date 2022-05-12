@@ -100,15 +100,21 @@ Alone in the darkness, he took stock of his situation and options. He could not 
 
 * * *
 
-1 Shoo Git, in the morning, hearing a rooster crow.
+Runt woke to a loud but distant cry of a territorial bird. He was not familiar with the variety, but his stomach told him that it bore investigation. He unblocked the entrance to his tree hole and cocked his head to one side, listening for the sound. The bird made its loud cry again, and he got a good inclination as to the direction. He head in the direction of what he hoped would become his breakfast.
 
-2 Shoo Git, not much after that, on the edge of the woods and farmland, looking for enemies and seeking the source of the noise.
+Before too long, he found himself at the edge of the woods, and he could see that there was a strangely organized field. Plants were growing in rows, with empty dirt between them. This was not, to his knowledge, how plants grew by themselves. Plants were savage, choking each other out reaching above for sun and below for water. The way that these plants were arranged suggested intelligence, and intelligence meant danger.
 
-3 Shoo Git, hiding, observing a farmer weeding and hoeing.
+He kept out of easy sight behind the trees and brush, observing the strange phenomenon, hoping to catch a glimpse of what sort of creature might be the organizer. Soon he saw one. It was twice as tall as him, and stood upright, with no tail! It didn't even have feathers to keep warm, but seemed to be mostly wrapped in some sort of covering, except for its hands and face, which were both hideously non-reptilian. The faces were flat, the hands had no claws. How could such a creature fight and hunt?
 
-4 Shoo Git, exploring, skulking about the farm.
+Almost as an answer to his question, the creature swung a tree branch with something at the end of it, which cause some of the dirt nearby the creature to sunder and fly in several directions. It had weapons to make up for its lack of natural defenses. This was not a thing that the Tribe or Enemies did. These creatures must be very intelligent.  However, the way in which the creature expertly wielded his weapon at the ground gave him food for thought. He decided to consider this later, however, as he heard the loud bird cry again.
 
-5 Shoo Git, discovering the hen-house.
+He stayed out of sight from the weapon wielding creature. He did not want to feel the sting of the dirt weapon! He skulked along the tree line until he saw something he could scarcely understand. There was a small structure that could have not have occurred randomly. The weapons wielders must have constructed it. It was small and square, and there were a number of fat birds nearby, picking through the grass for insects.  On the top of the structure was a similar looking bird, but with brighter plumage. This was the bird making the loud cry. It must be the male of the species, he decided. The females were non-descript.
+
+There were openings in the structure, and the birds walked into and out of it. The openings had wooden panels that looked like they could slide into place to keep the structure shut.
+
+He concluded that these birds must be kept in the structure by the weapon wielders for a reason, and thought about it a while. His conclusion was eggs. The weapon wielders were egg eaters. This gave him some comfort that he did not have to worry about them hunting him. If they ate plants and eggs, they were not hunters, and therefore not Enemies. He still had to be wary, however, for they were strange to him. He would observe them and learn from them and about them.
+
+But that did not sate his hunger. He considered his options. He could find a way into the structure, and take some of the eggs. There must be many in a structure that size. However, if that is what the weapon wielders ate, they might not be all that happy with him if they caught him. Since the structure could be closed, it might be that way to keep out predators at night. So animals would sometimes snag one of the birds to eat. Should he pretend to be one of the predators, and take one now?
 
 6 Shoo Git, running away with a chicken while the other chickens raise the alarm.
 

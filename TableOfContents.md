@@ -2,15 +2,15 @@
 
 # Act I
 
-* Chapter I:
-* Chapter II:
-* Chapter III:
-* Chapter IV:
-* Chapter V:
+* Chapter I: Shoo Git and Leutfrid Oakbottom
+* Chapter II: Juliana and Beauregard
+* Chapter III: Swampweed and Vermin Exterminator Shoo Git
+* Chapter IV: Nysanara and Zhenquid
+* Chapter V: Demmic and Mesh
 
 # Act II
 
-* Chapter VI:
+* Chapter VI: 
 * Chapter VII:
 * Chapter VIII:
 * Chapter IX:

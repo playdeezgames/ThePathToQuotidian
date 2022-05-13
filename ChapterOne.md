@@ -116,15 +116,25 @@ He concluded that these birds must be kept in the structure by the weapon wielde
 
 But that did not sate his hunger. He considered his options. He could find a way into the structure, and take some of the eggs. There must be many in a structure that size. However, if that is what the weapon wielders ate, they might not be all that happy with him if they caught him. Since the structure could be closed, it might be that way to keep out predators at night. So animals would sometimes snag one of the birds to eat. Should he pretend to be one of the predators, and take one now?
 
-6 Shoo Git, running away with a chicken while the other chickens raise the alarm.
+One of the birds wandered closer to his hiding place. They must not have good senses of smell, he thought. Or maybe they did, and his scent just was not classified by their small brains as danger. In any case his Prey wandered within just a few body lengths, and he decided. As quickly as he could, he dashed out, grabbed the bird by the neck, and ran back into the brush. The bird let out a loud protest and fluttered its wings, and that cause the other birds in the area to raise the alarm. He snapped its neck to stop its own protests, but the damage was already done, and coupld of the weapon wielders had taken notice and were heading his way.
 
-7 Shoo Git, evading farmers, running into the woods. Sudden bird harrasses farmers and they give up pursuit.
+He ran further into the woods as the Enemies, as such he could now classify them advanced a short ways after him, weapons in hand. He did not wish to feel a strike from those. A few more Enemies gathered, and a group of several followed his trail. They pointed and shouted to one other. They were well organized.  Eventually he found a tree that he could clamber up and hide in its foliage, observing his pursuers down below without them seeing him, hopefully.
 
-8 Shoo Git, hiding from hunters, in the woods, noticing zombie bird.
+A small bird fluttered nearby, landing on a branch one tree over. It looked at him. He was distracted by this, because something about it did not seem right. The clamor of the weapon wielders focused him again. He needed to avoid them, so there was no need to bother with some strange random bird. One of the enemy pointed to the tree that he was hiding in and shouted something to the others. A different one pointed directly at him. How had they found him so quickly?
 
-8.5 Attempt to catch zombie bird, which escapes.
+Immediately, he knew the answer. Feathers. The bird he had slain had left an irregular but followable trail of feathers as he ran through the brambles. Likely a few of his own feathers had been shed along the way. He knew he was done for.
 
-9 Shoo Git, taking a respite in the hollowed tree, eating the chicken.
+Suddenly, the strange bird flew at his Enemies, scratching at them with its clawed feet. They swung at it with their weapons, but could not connect. The bird kept harrassing them as Runt watched, amazed. Normally such a bird might defend a nest, but this bird had the deliberate decision making of intelligence. This was a strange place ideed. He almost got so engrossed watching this birds antics that he forgot about his own peril.
+
+Coming to his senses, he leapt to another tree and then to another, and finally left the bedlam of his pursuers well behind him. He had escaped, thanks to his helper, and he had his prize. He would eat well!
+
+For along time, he listened. The pursuit did not follow. He tore into the bird, eating muscle and organ. The skin and bones he was very careful to find a place to bury with rocks. If he was to live, he had to be careful of his new Enemies. Maybe they would hunt him down to kill him and eat him after all.
+
+After a time of waiting, he saw the same strange bird land nearby, watching him again. It did not show any fear of him, and he looked at it intently. He closed to less than a body length, and it did not move away, but kept looking at him. Slowly he circled it, it occasionally turned awkwardly to face him. Run realized what was off about this bird. While it flew and had feathers, it did not tweet or make any noise of any kind. It did not move with a hopping gait as did other birds. Finally, it had a wound on its neck, but it did not bleed. It should be dead, but was moving.
+
+He knew immediately that this was the work of a great Shaman or Medicine Man. Some of them had the power over death, to bring the slain back to life to do their bidding. Fear washed over him, but he forced himself not to run away. Was it a Shaman of his own kind that controlled this beat? It fought against the weapon wielders, so it was not in league with his Enemies, but that did not make it an Ally.
+
+After a short time, realizing that if the Shaman wanted him dead by curses or sendings, then he would be dead already. Maybe the Shaman would be an Ally. Time would tell. For now he could do nothing about it. He returned to his hollowed tree for a respite in the hottest part of the day.
 
 10 Shoo Git, the next night, at the hen house, cautiously exploring.
 

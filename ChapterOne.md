@@ -136,23 +136,21 @@ He knew immediately that this was the work of a great Shaman or Medicine Man. So
 
 After a short time, realizing that if the Shaman wanted him dead by curses or sendings, then he would be dead already. Maybe the Shaman would be an Ally. Time would tell. For now he could do nothing about it. He returned to his hollowed tree for a respite in the hottest part of the day.
 
-10 Shoo Git, the next night, at the hen house, cautiously exploring.
+In the afternoon, Runt went about the business of hunting more food. The bird had sated his hunger for now, but tomorrow he would need something else, so it was best to look around for tomorrows meal. Along his way, he found a fallen long, thin branch lying on the ground. It reminded him of the weapon wielders, so he picked it up and tried to mimic their motions. His anatomy was not well suited to this purpose, and his natural weapons were still quite formidable, so he soon laid down the idea of emulating his Enemies in this way, but his curiousity had made him at least try.
 
-11 Shoo Git, discovering a snare, taking the device.
+Night fell, and he was still sufficiently rested, but had not yet found a food source. So he snuck back to the tree line by the boxy bird structure. None of the Enemies were present, but neither were the birds. The structure's entrances were now blocked up. It would be a simple matter to open them, he realized, but did he want to? He was certain the birds would raise the alarm again, and he knew not where the Enemies slept. It could be quite nearby, though he could not smell them.
 
-12 Shoo Git, discovering a baited deadfall, figuring out its mechanism.
+What he could smell was some meat, and it was nearby. He did not generally care for carrion, but this was not a time to be picky. He tracked its position by smell. It came from a strange device made of large branches and some sort of cordage. One branch was pointed upwards and outwards, and the other was flat near the ground. Two shorter, thicker branches flanked it. The meat was in the corner where the two long branches met. He found it fascinating. Why did they build this? Why did they build anything? He examined it closely, careful not to touch it.
 
-13 Shoo Git, deliberately tripping a deadfall harmlessly.
+Eventually, he figured out how it worked. The branch extending outward and upward could be triggered by something trying to get to the meat, and it would swing down on whatever part of their body they were using to get at it, which was probably the head. It was a automatic killing tool. He wondered if he could build one. He could, he reasoned, but he did not know how to make the cordage. He could plainly see how the mechanism went together.
 
-14 Shoo Git, eating the bait from the dead fall.
+Having learned all he could from the device, he explored the rest of the area, looking for other Enemy weapons. He found other bits of meat left out, circled by loops of cordage, which he examines. The loops were easily avoided and he grabbed the meat chunks and put them in his gizzard, but out of curiousity he picked one up, and found that in addition to the loop there was a section of cordage tied to a small piece of branch that had one end pressed into the ground to hold it steady. And he understood this mechanism as well. An animal takes the meat, and when they try to leave the loop tightens on the foot or the leg or wherever, and the animal panicks and tries to run, which makes things worse. Either way, the animal would be dead or caught.
 
-15 Shoo Git, retreated to the woods.
+In any case, Runt was delighted with this discovery, and dug up two of the sticks holding the loops, and retreated back to his tree hollow, but before retiring for the rest of the night, he set up the loops in places where he had seen animals running to and fro. With any luck, one of them might be stupid enough to get caught, and then he'd have his breakfast.
 
-16 Shoo Git, having set the snare along a rabbit path.
+He was pleased with himself for improving his survival prospects this day as he climbed into the tree hollow and pushed debris to close off the entrance. Tomorrow looked to be a good day.
 
-17 Shoo Git, sleeping in the tree hollow.
-
-# Scene IV
+* * *
 
 1 Leutfrid, using a zombie bird to scout for food. 
 

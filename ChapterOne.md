@@ -92,7 +92,7 @@ He closed his eyes and concentrated, willing the bird to fly up above the trees 
 
 Frustrated, but knowing that stress would interfere with his link and control, he sat down and concentrating on breathing in a controlled manner. After a few more falters, he could command the bird to flap up to a higher branch. He would have to take the ability to do large jumps of this kind until he could gain the mastery necessary, if ever he did. Remote controlling the undead was difficult, especially one with a mode of travel so drastically different than his own.
 
-Within a few hours, he had located some acorns and other nuts to eat. He opened them with a couple of stones and ate them without roasting. They were not delicious, but he had been malnourished before the episode with the bandits, and using voidmagic was fatiguing, so he needed the energy desperately.
+Within a few hours, using a kind of telepathy with his undead creation, he had located some acorns and other nuts to eat. He opened them with a couple of stones and ate them without roasting. They were not delicious, but he had been malnourished before the episode with the bandits, and using voidmagic was fatiguing, so he needed the energy desperately.
 
 As night fell, he found a few trees grown closely together that he could squeeze between and cover himself with leaves for the night. It would not be comfortable, and he hoped it did not rain, for that would be miserable.  A small creek was nearby and he drank. It was moving water, not stagnant, and he hoped he would avoid illness this way.
 
@@ -152,17 +152,29 @@ He was pleased with himself for improving his survival prospects this day as he 
 
 * * *
 
-1 Leutfrid, using a zombie bird to scout for food. 
+In the morning, Leutfrid was relieved to find the bird still in a good enough shape to animate. After another day or two, it would be too far gone to make use of. Also, he found that, while certainly not an expert at making it fly, he could do so for longer and longer periods of times. Also, his link to it was better established, likely because if anything it was now even more dead than before. He could now see more clearly through its eyes. He used the higher vantage point to his advantage and forage for food.
 
-2 Zombie bird spotting berries.
+A short distance away, the bird saw some berries that were just now coming into ripeness. He was glad that he had learned wilderness lore when he was younger, for it served him well now. He identified this as mardlin berries, and he knew them to be delicious.
 
-3 Leutfrid, considering his options as he travels to the berry bush.
+As he physically made his way to the bird's find, or was it his find? The bird was dead, and so at this point technically an extension of his own will. Leutfrid was not completely certain where he ended and the bird began.
 
-4 Leutfrid, harvesting berries.
+And that was part of the problem, he mused to himself. This was the primary objection that caused proper societies, like the Tlakkan society, to not just look down on buy actively outlaw and try to stamp out voidmages. When he animated a creature, a small part of him became the creature. If the legends and stories of the voidmages of old were to be believed, such connections would eventually lead to madness.
 
-5 Zombie bird scouting a farm.
+Was he headed for madness? He did not think so. But what sort of future did he have? Certainly, he could stay here in these woods for a time, but he was no ranger or hunter.
 
-6 Leutfrid, lamenting his inability to negotiate with the farmers.
+Hunter. He thought of Leubast, and while she was not his friend, he knew that she was just doing her job. He wished her no specific harm. How had her encounter with the bandits turned out? She seemed able enough, but they outnumbered her. He hoped that they had not killed her, or worse.
+
+Leutfrid shook his head to clear it of those thoughts. He had to focus on the now, on today. Today he was getting some mardlin berries. And he needed a better shelter, but he needed the energy to assemble it. Already he was mentally taxed by animating the bird, and soon he would not have the energy to do that.
+
+He arrived at the berry bushes, and ate his fill. He did not have any sort of basket or pouches. Indeed he only had the tunic on his back and a pair of breeches. He went barefoot in the traditional manner of the Tlakkans. He took the tunic off, and used it to bundle as many berries as he could. He would have made his base of operations nearby, but he knew that he was not the only interested party in them, and that some of those interested parties might also be interested in him as a food source.
+
+He set the bird aflight again, now to scout for a good location in which to build a lean-to. His poor accomodations of the last night he afforded him little sleep, and he had noticed the tracks of a few smaller predators investigating the smell of a newcomer. They were wary last night, but would become braver with repeated encounters.
+
+Leutfrid was surprised to learn that there was a farm nearby. Immediately his hopes were raised, at least until he gave it some actual thought. He could not contact them, for even if Leubast had been horribly murdered by those bandits, he was certain that if the bounty on his capture were not already known to them, it would be before long. No, he could not be safe anywhere in civilized lands.
+
+Or at least, not any of the civilized lands this close to Tlak. He pondered for a moment a journey to the south, in which the Ylf land of Aeborodor lies. But even the thought of that soured. Ylfs were lovers of light and life, and he doubted that even they would suffer a Tlakkan voidmage.
+
+So he was stuck. He could not escape to a far away land, nor could he rejoin society. He could struggle to survive in the wilderness, but that would eventually kill him as he was no expert. He was a dead Tlakkan, though he yet walked, for now.
 
 7 Zombie bird spotting Shoo Git.
 

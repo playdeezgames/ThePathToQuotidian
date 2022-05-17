@@ -186,17 +186,39 @@ He controlled the bird to dive at the farmers. They were perplexed, and waved th
 
 It took some time to find it, and the dead chicken was gone, Leutfrid presumed eaten in a hurry. This creature was no dummy! He landed the bird nearby, and observed the creature slowly approach and study it. It did not attack, it just watched his zombie curiously. After a short while, he summoned the bird back to him, doing his best to memorize land marks so that he could find his new friend later, presuming that the creature dwelt nearby. In any case, there was foraging to do.
 
-11 Leutfrid, foraging for nuts and mushrooms.
+Over the course of the next hour or so, he found some edible mushrooms. Tlakkans of all walks of life had always been enamored of mushrooms, and Leutfrid was no different. As a result, this was a part of foraging that he actually had some level of mastery of. He also found some tree nuts relatively nearby. Defore long, his local supply would be diminished, but he decided to worry about tomorrow when it actually was tomorrow.
 
-12 Leutfrid, constructing a lean-to.
+With grim and wholly unskilled determination, he set about trying to build a lean-to. Quickly he realized that he had no idea how to make cordage, and contented himself to strip bark off of young branches instead. It was wet and slick and made a mess of his hands, but he knew he needed shelter.
 
-13 Leutfrid, hunting game birds with rocks.
+He found thicker fallen branches here and there, but not nearly enough to construct any sort of shelter. In addition, he had no way of cutting the branches to length, and nor did he have any idea of how to fashion a tool that would let him cut the branches.
 
-14 Leutfrid, risking a small fire.
+Eventually, he gave up, with only a small pile of branches and strips of tree bark to show for his efforts. His hands hurt and his curly hair was sweaty and matted to his brown. It was mid afternoon when he decided that shelter was a lost cause, and he was resigned to tucking himself into his previous nights cold, exposed location.
 
-15 Leutfrid, sleeping another night.
+He considered for a moment waiting for nightfall and looking for tools and other supplies to build with from the farmers. He would have to be judicious about it, and only take small quantities, but he was desperate. But then he realized that it would not be a good idea to go to the farm tonight. Their experience with the creature would have them alerted to a nearby predator, and so he would need to wait until tomorrow night. He hoped it would not rain.
 
-# Scene V
+He found some pebbles in a nearby creek bed. He would have fished had he a pole, and this reminded him of his utter failure at outdoorsmanship. He had always thought that he lived a simple rustic life, but even being reared in a village of modest and hardworking Tlakkans had shielded him from the the rigors of having to survive with nothing by hit wits.
+
+With the pebbles, he had a go at throwing them at birds. Nuts and mushrooms and berries were all well and good, and he was grateful to have found them, but meat would have to be on the menu at some point. Tlakkans were not vegetarians.
+
+As a child, he was well practiced with hitting targets with rocks, but that had been at play, and never at something alive and moving. He missed most of the time, with whichever bird he was targeting moving away in just the nick of time. But eventually one did land, though it did not strike any vital part of the bird, and it flew away, alarmed.  But he was encouraged, and his skill was improving.
+
+Eventually he managed to strike one in the head, and it fell to the ground. Acting quickly, for he knew not whether he had actually killed it or just stunned it, he found where it was and finished the job by smashing its head in with a rock. He was exuberant! He had hunted himself dinner.
+
+Reality stopped him. He had no way of making fire: no matches, no tinder box. And he knew to eat the bird raw would most likely make him sick. Disheartened, he considered throwing the bird into the creek.
+
+Then he realized that voidmagic, if applied creatively, might allow him to start a fire. He knew nothing of actual pyromagic, but he did know that very dry pieces of wood when rubbed together could catch fire. And while drying something would be within the realm of hydromagic or aeromagic, his command over death and dying could have much the same effect.
+
+He started with some leaves. Speaking some words and concentrating caused them to go from green to withered to a dried-out brown. He did the same to a few flatish pieces of wood, and as much to most of his failed lean-to supply pile. He could force all of the wood to drain of its life essence, and, he realized, he took it for himself.
+
+This, of course, was another reason that voidmagic was so frowned upon. He was literally stealing the life of other beings. Certainly, in this case it was just plants, but doing so from plants, or people, would be evil and cruel. *And also drive me mad as well*, he mused.
+
+He took a flat piece of dried out wood, and put a clump of dried leaves on top of it. He then took a second flat piece, layering the leaves between them, and he moved the top piece back and forth while keeping the bottom piece in place with his knee. Before too long, he saw smoke, and brough the ember to his dried pile and blew on it. He had made a fire without pyromagic!
+
+He constructed a primitive spit, plucked the bird and roasted it over the fire. It was burned more than a bit, and not delicious in the slightest, but it was food. 
+
+It grew colder as dusk approached, so he buried himself as best he could in leaves and found another night of fitful sleep.
+
+* * *
 
 1 Shoo Git, eating snared rabbit for breakfast.
 

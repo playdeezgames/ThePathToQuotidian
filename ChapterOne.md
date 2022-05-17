@@ -130,11 +130,11 @@ Coming to his senses, he leapt to another tree and then to another, and finally 
 
 For along time, he listened. The pursuit did not follow. He tore into the bird, eating muscle and organ. The skin and bones he was very careful to find a place to bury with rocks. If he was to live, he had to be careful of his new Enemies. Maybe they would hunt him down to kill him and eat him after all.
 
-After a time of waiting, he saw the same strange bird land nearby, watching him again. It did not show any fear of him, and he looked at it intently. He closed to less than a body length, and it did not move away, but kept looking at him. Slowly he circled it, it occasionally turned awkwardly to face him. Run realized what was off about this bird. While it flew and had feathers, it did not tweet or make any noise of any kind. It did not move with a hopping gait as did other birds. Finally, it had a wound on its neck, but it did not bleed. It should be dead, but was moving.
+After a time of waiting, he saw the same strange bird land nearby, watching him again. It did not show any fear of him, and he looked at it intently. He closed to less than a body length, and it did not move away, but kept looking at him. Slowly he circled it, it occasionally turned awkwardly to face him. Runt realized what was off about this bird. While it flew and had feathers, it did not tweet or make any noise of any kind. It did not move with a hopping gait as did other birds. Finally, it had a wound on its neck, but it did not bleed. It should be dead, but was moving.
 
-He knew immediately that this was the work of a great Shaman or Medicine Man. Some of them had the power over death, to bring the slain back to life to do their bidding. Fear washed over him, but he forced himself not to run away. Was it a Shaman of his own kind that controlled this beat? It fought against the weapon wielders, so it was not in league with his Enemies, but that did not make it an Ally.
+He knew immediately that this was the work of a great Shaman or Medicine Man. Some of them had the power over death, to bring the slain back to life to do their bidding. Fear washed over him, but he forced himself not to run away. Was it a Shaman of his own kind that controlled this berd? It fought against the weapon wielders, so it was not in league with his Enemies, but that did not make it an Ally.
 
-After a short time, realizing that if the Shaman wanted him dead by curses or sendings, then he would be dead already. Maybe the Shaman would be an Ally. Time would tell. For now he could do nothing about it. He returned to his hollowed tree for a respite in the hottest part of the day.
+After a short time, realizing that if the Shaman wanted him dead by curses or sendings, then he would be dead already. Maybe the Shaman would be an Ally. Time would tell. For now he could do nothing about it. The bird flew off and he returned to his hollowed tree for a respite in the hottest part of the day.
 
 In the afternoon, Runt went about the business of hunting more food. The bird had sated his hunger for now, but tomorrow he would need something else, so it was best to look around for tomorrows meal. Along his way, he found a fallen long, thin branch lying on the ground. It reminded him of the weapon wielders, so he picked it up and tried to mimic their motions. His anatomy was not well suited to this purpose, and his natural weapons were still quite formidable, so he soon laid down the idea of emulating his Enemies in this way, but his curiousity had made him at least try.
 
@@ -176,13 +176,15 @@ Or at least, not any of the civilized lands this close to Tlak. He pondered for 
 
 So he was stuck. He could not escape to a far away land, nor could he rejoin society. He could struggle to survive in the wilderness, but that would eventually kill him as he was no expert. He was a dead Tlakkan, though he yet walked, for now.
 
-7 Zombie bird spotting Shoo Git.
+Through the eyes of the bird, he saw a feathered creature shimmy up a tree, holding a dead chicken. Dead chicken? Leutfrid thought. This bears a closer look. He landed the bird near the creature and examined it. It was around his height, had a reptilian snout with sharp teeth, piercing eyes that faced forward, and powerful legs. Its forelimbs ended in hands with three claws each. One of its hands was holding the dead chicken. There were chicken feathers floating everywhere. Leutfrid wondered a moment why this creature had climbed this tree so suddenly.
 
-8 Zombie bird assisting in the escape of Shoo Git.
+Then he hear them. Several of the farm hands were after it, forks and hoes in hand. One on one, this creature looked like it could best any one of these men, even with tool in hand. However, outnumbered like this, it was only a matter of time.
 
-9 Zombie bird watching Shoo Git
+Leutfrid realized that the creature had taken notice of his zombie bird. It was sniffing the air, examining his thrall. He found this unsettling, and realized that this creature was no mere animal. It had intelligence.  It, like him, was being hunted. Leutfrid decided that he needed to render aid to this creature.
 
-10 Zombie bird escaping.
+He controlled the bird to dive at the farmers. They were perplexed, and waved their implements to ward him off ineffectively. At first, the feathered creature just stayed where it was, but quickly it realized it was being given a break, and it jumped to the next tree and soon was gone.  Leutfrid pestered the farmers for several minutes, until they retreated back towards the farm, mumbling to themselves about strange goings on. He had the zombie bird follow them a ways until he was certain that they had abandoned pursuit, then he went back to seach for the creature.
+
+It took some time to find it, and the dead chicken was gone, Leutfrid presumed eaten in a hurry. This creature was no dummy! He landed the bird nearby, and observed the creature slowly approach and study it. It did not attack, it just watched his zombie curiously. After a short while, he summoned the bird back to him, doing his best to memorize land marks so that he could find his new friend later, presuming that the creature dwelt nearby. In any case, there was foraging to do.
 
 11 Leutfrid, foraging for nuts and mushrooms.
 

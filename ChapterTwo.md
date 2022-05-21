@@ -1,93 +1,122 @@
 # Scene One
 
-1 Beauregard Boatwright, fancy dress and hand cart in tow, arrives at the outskirts of town near the east gate.
+1 Dhongrouc Shattershield, Snakkuk  Copperbane, Habrarlum Earthflayer, Umibrerlug Oakdelver on foot and driving trade cart. Dhon and Snak driving cart, Hab and Umi on foot.
 
-2 B's impression of the shearing, slaughtering, and tanning going on in the locale.
+2 Snak and Hab teasing Umi for his inexperience with women. Dhon remaining silent.
 
-3 B at the town gate, being asked his business.
+3 Umi thinking of his sweetheart back home, Hasdrouthra Metalbrew. 
 
-4 B paying a tax for entry.
+4 Snak complaining about his wife. Hab criticizing marriage.
 
-5 B having entered town.
+5 The group pulling off the side of the road to make camp at the end of the day.
 
-6 B seeing Dagger Dale's Discount Daggers and Cheese
+6 The group having a meal and talking.
 
-7 B heading for the store.
+7 The group determining the watch order.
 
-8 B inside the store, meeting Meg and Daryn Lysde.
+8 Umi attempting to sleep.
 
-9 B attempting conversation.
+9 Umi being awakened by Hab for the third watch.
 
-10 Dagger Dale's big entrance.
+10 Umi being vigilant, but bored.
 
-11 B attempts to impress DD.
+11 Umi waking Dhon for the last watch and trying to get a little more rest.
 
-12 DD actually impresses B.
+12 The group waking and breakfasting at dawn.
 
-13 B asks where to stay in town. DD says Bromidic inn.
-
-14 B leaves the shop, heading for the inn.
+13 The group back on the road.
 
 # Scene Two
 
-1 B arriving at the Inn, greeted by Rusten.
+1 Zadock Millikan, barring the inner sanctum doors of the Temple of Shyrana near Feshth.
 
-2 B meeting a cold Belara.
+2 Nara, taking incense and chalk and drawing a circle, praying to her goddess.
 
-3 Rusten goes on about horse breeding.
+3 Zadock, pushing furniture items in front of the barred doors as the enemy forces strike against it.
 
-4 Belara pulls B to the side and strictly warns him to leave Lola, her daughter, be.
+4 Zadock, his back to the door, urging Nara to hurry. Nara the embodiment of calm cool under pressure.
 
-5 B looking across the room at Lola, seeing Lola's obvious interest in Manrog Mulyt, an alcolyte of Ardana.
+5 Nara, speaking the words of magic to open the portal.
 
-6 Rusten suggests nightly performances and splitting the take. Belara gives dirty look.
+6 The portal, opening with an eerie ethereal glow.
 
-7 B sees Julian Trinder walk in, dirty and tired from travel.
+7 The door starting to break with sounds of logs used as battering rams.
 
-8 B goes to meet JT, introduces himself. She reveals she is a priestess of Larak, come to help the refugees.
+8 Nara telling Zadock to go first, she must be the last to enter it for she is the anchor for it. Zadock saying to go together.
 
-9 B invites her to see his show later. JT invites him to help the next day with refugees.
+9 Nara shaking her head. Z and N Exchange words of love.
 
-10 At the show that night, Belara fumes, JT is delighted by the show.
+10 Z enters the portal to find himself in a field.
 
-11 The next day, B tells stories to refugee children and hands out food to refugees.
+11 Z looks back to see the temple door breaking and falling.
 
-12 That night, the performance starts to draw a real crowd.
+12 Z sees Nara struck by numerous crossbow bolts.
 
-13 Belara counts the split take twice.
+13 The portal snaps shut as Z attempts to go back to save her.
+
+14 Z alone in a foreign land.
 
 # Scene Three
 
-1 A week later, after helping increasing surge of refugees and a show, JT comes to visit.
+1 The Karkan group travelling the road toward Quotidian, singing a song.
 
-2 JT opens up about how stressed she has been and how much she appreciates his help.
+2 The group encountering a strange human.
 
-3 B and JT get it on.
+3 The human relates his impossible tale.
 
-4 The two talk momentarily and then fall asleep.
+4 The Karkans tell him where he is.
 
-5 JT attempts to sneak out, but is spotted by Belara, who gives B a stern talking to.
+5 Z distrought.
 
-6 After breakfast, B meets Delya Sougish, the Reeve, who asks to go about town giving people notice that there would be a town hall meeting this evening, partially preempting his show.
+6 The Karkans offer to help him get to Quotidian.
 
-7 B talks to JT about his task, she admits it is the best way for him to help the refugees.
+7 Z declines their offer, but takes some food and a pack and a weapon.
 
-8 During the day, B tells the townsfolk about the meeting.
+8 Z heads to the north.
 
-9 All of the important townsfolk are there and described.
+9 The group heads towards Quotidian.
 
-10 During the meeting, Delya informs the town about the increasing state of the refugee crisis.
-
-11 Various townsfolk pledge monies to the cause. B agrees that the entirety of tonights should would be dedicated to this, making Belara absolutely livid because it means they aren't getting anything, but Rusten agrees.
-
-12 The show goes well, earning a record take.
-
-13 JT visits him again, but they just talk. She suggests that when things die down here that he return to her hometown where he could continue to do good for people.
-
-14 He agrees to think it over and she leaves.
-
-15 He immediately starts thinking about his exit plan.
+10 The group discusses the strange event.
 
 # Scene Four
 
+1 Near evening, Z hearing a noise, and stealthily approaching.
+
+2 Z watching bandits get drunk and attempt to rape a naked Leubast.
+
+3 Fed up with her fighting, they chain her to a tree.
+
+4 Leubast continues to struggle and curses them.
+
+5 The bandits gagging Leubast.
+
+6 Bandit drunken revelrie continues until they are all passed out drunk.
+
+7 Z freeing Leubast.
+
+8 Z keeping Leubast from attacking them immediately.
+
+9 Leubast gathers what remains of her clothing and retreats with Z.
+
+10 Z and L making a camp some distance away.
+
+11 Z sharing his food.
+
+12 Leubast tells her tale.
+
+13 Z tells his tale.
+
+14 A plan is made to go to Quotidian the next morning.
+
+15 Z volunteers for the first watch.
+
+16 Leubast sleeps.
+
+17 Z stays awake the entire night.
+
+18 Leubast wakes.
+
+19 Z and L head for Quotidian.
+
 # Scene Five
+

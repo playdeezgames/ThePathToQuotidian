@@ -1,122 +1,170 @@
 # Scene One
 
-1 Dhongrouc Shattershield, Snakkuk  Copperbane, Habrarlum Earthflayer, Umibrerlug Oakdelver on foot and driving trade cart. Dhon and Snak driving cart, Hab and Umi on foot.
+1 Beauregard Boatwright, fancy dress and hand cart in tow, arrives at the outskirts of town near the east gate.
 
-2 Snak and Hab teasing Umi for his inexperience with women. Dhon remaining silent.
+2 B's impression of the shearing, slaughtering, and tanning going on in the locale.
 
-3 Umi thinking of his sweetheart back home, Hasdrouthra Metalbrew. 
+3 B at the town gate, being asked his business.
 
-4 Snak complaining about his wife. Hab criticizing marriage.
+4 B paying a tax for entry.
 
-5 The group pulling off the side of the road to make camp at the end of the day.
+5 B having entered town.
 
-6 The group having a meal and talking.
+6 B seeing Dagger Dale's Discount Daggers and Cheese
 
-7 The group determining the watch order.
+7 B heading for the store.
 
-8 Umi attempting to sleep.
+8 B inside the store, meeting Meg and Daryn Lysde.
 
-9 Umi being awakened by Hab for the third watch.
+9 B attempting conversation.
 
-10 Umi being vigilant, but bored.
+10 Dagger Dale's big entrance.
 
-11 Umi waking Dhon for the last watch and trying to get a little more rest.
+11 B attempts to impress DD.
 
-12 The group waking and breakfasting at dawn.
+12 DD actually impresses B.
 
-13 The group back on the road.
+13 B asks where to stay in town. DD says Bromidic inn.
+
+14 B leaves the shop, heading for the inn.
 
 # Scene Two
 
-1 Zadock Millikan, barring the inner sanctum doors of the Temple of Shyrana near Feshth.
+1 B arriving at the Inn, greeted by Rusten.
 
-2 Nara, taking incense and chalk and drawing a circle, praying to her goddess.
+2 B meeting a cold Belara.
 
-3 Zadock, pushing furniture items in front of the barred doors as the enemy forces strike against it.
+3 Rusten goes on about horse breeding.
 
-4 Zadock, his back to the door, urging Nara to hurry. Nara the embodiment of calm cool under pressure.
+4 Belara pulls B to the side and strictly warns him to leave Lola, her daughter, be.
 
-5 Nara, speaking the words of magic to open the portal.
+5 B looking across the room at Lola, seeing Lola's obvious interest in Manrog Mulyt, an alcolyte of Ardana.
 
-6 The portal, opening with an eerie ethereal glow.
+6 Rusten suggests nightly performances and splitting the take. Belara gives dirty look.
 
-7 The door starting to break with sounds of logs used as battering rams.
+7 B sees Julian Trinder walk in, dirty and tired from travel.
 
-8 Nara telling Zadock to go first, she must be the last to enter it for she is the anchor for it. Zadock saying to go together.
+8 B goes to meet JT, introduces himself. She reveals she is a priestess of Larak, come to help the refugees.
 
-9 Nara shaking her head. Z and N Exchange words of love.
+9 B invites her to see his show later. JT invites him to help the next day with refugees.
 
-10 Z enters the portal to find himself in a field.
+10 At the show that night, Belara fumes, JT is delighted by the show.
 
-11 Z looks back to see the temple door breaking and falling.
+11 The next day, B tells stories to refugee children and hands out food to refugees.
 
-12 Z sees Nara struck by numerous crossbow bolts.
+12 That night, the performance starts to draw a real crowd.
 
-13 The portal snaps shut as Z attempts to go back to save her.
-
-14 Z alone in a foreign land.
+13 Belara counts the split take twice.
 
 # Scene Three
 
-1 The Karkan group travelling the road toward Quotidian, singing a song.
+1 B awakens early for some reason and goes to the main eating hall.
 
-2 The group encountering a strange human.
+2 B witnesses Shoo Git getting paid for rat corpses. Belara cuts off their tails.
 
-3 The human relates his impossible tale.
+3 B asks Rusten what the creature is.
 
-4 The Karkans tell him where he is.
+4 Rusten goes on a long winded exposition of his personal theories about Shoo Git.
 
-5 Z distrought.
+5 B follows Shoo to the abandoned warehouse, unobserved.
 
-6 The Karkans offer to help him get to Quotidian.
+6 B observes Shoo trade some sort of dried plant for colored baubles from some teenagers, one of whom he reckognizes as the child of Rusten and Belara.
 
-7 Z declines their offer, but takes some food and a pack and a weapon.
+7 Shoo notices B and is wary.
 
-8 Z heads to the north.
+8 B calmly negotiates, uses a couple of jingling bells to procure some swampweed.
 
-9 The group heads towards Quotidian.
+9 B speaks briefly to Shoo, learning about him.
 
-10 The group discusses the strange event.
+10 B returns to the inn, tastes the smallest sample of the plant. It tastes awful, but provides a mild euphoric effect.
+
+11 B attempts to tell Belara about the swampweed and Shoo, but she insinuates it is all because of B instead.
+
+12 B goes back to his room as Belara ransacks the room of the teenager. There is much shouting.
+
+13 B shows the stuff to Rusten, who explains about it in great detail and how it was thought to be eradicated years ago. Rusten knows it wasnt B and will talk to Belara to ease off.
 
 # Scene Four
 
-1 Near evening, Z hearing a noise, and stealthily approaching.
+1 A week later, after helping increasing surge of refugees and a show, JT comes to visit.
 
-2 Z watching bandits get drunk and attempt to rape a naked Leubast.
+2 JT opens up about how stressed she has been and how much she appreciates his help.
 
-3 Fed up with her fighting, they chain her to a tree.
+3 B and JT get it on.
 
-4 Leubast continues to struggle and curses them.
+4 The two talk momentarily and then fall asleep.
 
-5 The bandits gagging Leubast.
+5 JT attempts to sneak out, but is spotted by Belara, who gives B a stern talking to.
 
-6 Bandit drunken revelrie continues until they are all passed out drunk.
+6 After breakfast, B meets Delya Sougish, the Reeve, who asks to go about town giving people notice that there would be a town hall meeting this evening, partially preempting his show.
 
-7 Z freeing Leubast.
+7 B talks to JT about his task, she admits it is the best way for him to help the refugees.
 
-8 Z keeping Leubast from attacking them immediately.
+8 During the day, B tells the townsfolk about the meeting.
 
-9 Leubast gathers what remains of her clothing and retreats with Z.
+9 All of the important townsfolk are there and described.
 
-10 Z and L making a camp some distance away.
+10 During the meeting, Delya informs the town about the increasing state of the refugee crisis.
 
-11 Z sharing his food.
+11 Various townsfolk pledge monies to the cause. B agrees that the entirety of tonights should would be dedicated to this, making Belara absolutely livid because it means they aren't getting anything, but Rusten agrees.
 
-12 Leubast tells her tale.
+12 The show goes well, earning a record take.
 
-13 Z tells his tale.
+13 JT visits him again, but they just talk. She suggests that when things die down here that he return to her hometown where he could continue to do good for people.
 
-14 A plan is made to go to Quotidian the next morning.
+14 He agrees to think it over and she leaves.
 
-15 Z volunteers for the first watch.
-
-16 Leubast sleeps.
-
-17 Z stays awake the entire night.
-
-18 Leubast wakes.
-
-19 Z and L head for Quotidian.
+15 He immediately starts thinking about his exit plan.
 
 # Scene Five
+
+1 B is packing up the next morning.
+
+2 JT stops by unexpected.
+
+3 JT sees him packed.
+
+4 JT has angry words and leaves.
+
+5 B stands stunned, then continues packing.
+
+6 Belara comes with angry words, and throws B out
+
+7 B gathers his things, heads for the gate.
+
+8 There is a commotion in town square as Dhongrouc Shattershield is carried into town by Umibrerlug Oakdelver
+
+9 Dhon and Umi are met by Ferric Seward and brought to the temple.
+
+10 B follows.
+
+11 B, known to people, is allowed passage close to the victim.
+
+12 JT is nowhere to be seen. B looks.
+
+13 Atroniel Seward treats Dhon as Umi tells his tale.
+
+14 Delya arrives, as does the Priest of Ardana.
+
+15 Delya addresses the crowd, asks for volunteers to track down these bandits and bring them to justice.
+
+16 Umi volunteers, demanding vengeance. 
+
+17 Shoo Git emerges from the crowd to volunteer.
+
+18 Delya extends an invitation for B to volunteer. Belana agrees for him, ironically citing his bravery and derring do.
+
+19 B, stuck, agrees, but plans to escape. Belara has Rusten take his baggage back to the inn to put under lock and key while he is away.
+
+20 Agreement of the three to meet at the inn that evening.
+
+21 Umi and B meet that evening. Umi has been healed by Atroniel. Shoo is nowhere to be seen.
+
+22 They decide to speak to Dagger dale, who is supping at the inn.
+
+23 Dagger Dale tells them to meet him early in the morning at his shop for him to properly provision them.
+
+24 Dale calls Shoo over, who has been hiding in shadows.
+
+25 The three retire to B's room. Shoo sleeps on the floor. B and Umi share the large bed that B used to have all to himself. Umi snores considerably.
 

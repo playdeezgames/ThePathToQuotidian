@@ -3,10 +3,10 @@
 # Act I
 
 * Chapter I: Shoo Git and Leutfrid Oakbottom
-* Chapter V: Dhon and Umi
-* Chapter IV: Leubast and Z find Leutfrid
-* Chapter III: Swampweed and Vermin Exterminator Shoo Git
-* Chapter II: Juliana and Beauregard
+* Chapter II: Dhon and Umi
+* Chapter III: Leubast and Z find Leutfrid
+* Chapter IV: Swampweed and Vermin Exterminator Shoo Git
+* Chapter V: Juliana and Beauregard
 
 # Act II
 

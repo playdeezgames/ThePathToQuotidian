@@ -106,7 +106,7 @@
 
 13 Z tells his tale.
 
-14 A plan is made to go to Quotidian the next morning.
+14 A plan is made to head for Quotidian the next morning.
 
 15 Z volunteers for the first watch.
 
@@ -120,3 +120,36 @@
 
 # Scene Five
 
+1 Z and L at the gates of Quotidian
+
+2 L goes to Dagger Dale for provisions
+
+3 Z goes to the Temple of Ardana to pray and give news
+
+4 Z speaks to Jeydl Mulyt about the attacks up in Kai
+
+5 Jeydl empathizes, but there is no way he sees to head north with the war going on.
+
+6 Z meets back up with L at Dale's. L has suited up.
+
+7 Dale speaks to Z and Z tells his tale and bemoans his inability to go back north.
+
+8 Dale suggests that Z become a pilgrim at this time.
+
+9 Z sees that he has become exactly what is described, dons the robe and abandons his name.
+
+10 Z attempts to offer Dale his service, but Dale needs nothing, indicating that L will need service.
+
+11 Z gives L his service.
+
+12 Dale speaks of rumors of some sort of thefts happening at the farms on the outskirts of town.
+
+13 Z and L leaving Quotidian on the search for Leutfrid, taking the farm thefts as a lead.
+
+14 Z and L traveling to the farm.
+
+15 Z and L arriving at the farm and speaking with the farmer.
+
+16 Z and L investigating the henhouse.
+
+17 Z and L investigating the trail of Shoo Git

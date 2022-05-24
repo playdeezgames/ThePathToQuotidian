@@ -220,15 +220,21 @@ It grew colder as dusk approached, so he buried himself as best he could in leav
 
 * * *
 
-1 Shoo Git, eating snared rabbit for breakfast.
+Runt was deslighted to find that at least one of the loop traps had worked, and had indeed snared a fine look rabbit, catching it by the foot. The beast had already been at work trying to chew off its own leg. He picked it up firmly with a clawed hand, loosening the string as he did so. He then bit into the juicy neck, and did not let go until the thing stopped twitching. He then tore open the fur and ate the meat and some of the bones. They were delicious.
 
-2 Shoo Git, hearing dogs and approaching hunters.
+After resetting the trap in a slightly different position, he rested a while. He supposed that they might get wise to where the traps were if he did not move them around somewhat. And this area would not have an unending supply of animals to eat. While he was becoming accustomed to his tree hollow, he knew that it was only a matter of time before he would need to abandon it.
 
-3 Shoo Git, hiding in his tree hollow as the hunters pass.
+He found himself wishing that he had the know how of the weapon wielding enemies, to make things and keep Prey in boxes until it was time to eat them. It must be, he realized, how the Enemies had gotten so big, by making their food so plentiful in this way. If he ever made it back home, he would have to tell the Elders about it. While there were no clucking birds back home, they might corral frogs or something.
 
-4 Shoo Git, following the hunters at a safe distance.
+He considered also that this would change things. Hunters would not need to hunt every day if the Prey were in a box. What would they do instead? He did not really give a damn, he realized. For all he cared, they could tear each other apart until the last one remaining could go ahead and breed with itself.
 
-5 Hunters, discovering the camp of Leutfrid abandoned. Shoo Git observes.
+Runt could hear in the distance the barking sounds of an approaching hunting animal. There were several of them, at least two fists worth. They were still a way off, his hearing was very good and he could hear their high pitched communication. They were hunting for something, and he feared that he might just be that something.
+
+Wisely, he quickly buried the rabbit skin, dismantled the snares, and put them and himself into the tree hollow, covering up the entrance from the inside. There was a commontion outside the tree hollow. He heard the voices of the weapon wielders intermixed among the sharp barks of the hunting animals. They moved along. It was not him that they were looking for, apparently. Runt held mostly still, know that even if it was not him they looked for, they would have to eventualy come back this way on their return.
+
+Eventually his curiousity made him act, leaving his tree hollow and following the weapon wielders and their hunting animals. It was easy to do, they left a very plain trail and the hunting animals made a distinctive sound that traveled far. Apparenly the weapon wielders had enslaved the hunting animals as well as the clucking birds. Powerful these weapon wielders were.
+
+To gain a better vantage point, as well as to avoid any potential pursuit, he took to the trees, as the woods were thick and lush. It was also faster travel this way, as he could leap between large branches. Before long, he had caught up with them, and saw that they had discovered the Shaman's campsite. So it was the Shaman they were after. Had they been cursed? Hunting a Shaman was a bad idea, Runt decided. The mysterious powers alone should have driven fear into the hearts of the weapon wielders.
 
 6 Hunters, splitting up to spread out their search after wrecking the camp. Shoo Git observes.
 

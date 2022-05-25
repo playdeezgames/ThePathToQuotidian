@@ -234,16 +234,26 @@ Wisely, he quickly buried the rabbit skin, dismantled the snares, and put them a
 
 Eventually his curiousity made him act, leaving his tree hollow and following the weapon wielders and their hunting animals. It was easy to do, they left a very plain trail and the hunting animals made a distinctive sound that traveled far. Apparenly the weapon wielders had enslaved the hunting animals as well as the clucking birds. Powerful these weapon wielders were.
 
-To gain a better vantage point, as well as to avoid any potential pursuit, he took to the trees, as the woods were thick and lush. It was also faster travel this way, as he could leap between large branches. Before long, he had caught up with them, and saw that they had discovered the Shaman's campsite. So it was the Shaman they were after. Had they been cursed? Hunting a Shaman was a bad idea, Runt decided. The mysterious powers alone should have driven fear into the hearts of the weapon wielders.
+To gain a better vantage point, as well as to avoid any potential pursuit, he took to the trees, as the woods were thick and lush. It was also faster travel this way, as he could leap between large branches. Before long, he had caught up with them, and saw that they had discovered the Shaman's campsite. So it was the Shaman they were after. Had they been cursed? Hunting a Shaman was a bad idea, Runt decided. The mysterious powers alone should have driven fear into the hearts of the weapon wielders. Unless, he thought, the weapon wielders had even greater juju than the Shaman. That could be how they made all of their weapons. 
 
-6 Hunters, splitting up to spread out their search after wrecking the camp. Shoo Git observes.
+The hunters split up into smaller groups. If they had powerful magic, it was not in evidence here. If they also used juju, then the would be able to use it to find the Shaman without the hunting animals. They were not juju masters after all, Runt decided.
 
-7 Shoo Git returns to his tree hollow to find leutfrid within.
+Eventually he tired of watching the weapon wielders fail to find the Shaman. The Shaman was gone, using his juju to stay invisible. Runt became disinterested and wandered slowly back to his tree hollow, still carefully remaining out of site and wary of the weapon wielders. While they may not command juju, their weapons were still formidable.
 
-8 Shoo Git decides that leutfrid is not Enemy, and may be Friend, or even Tribe.
+He sensed something was different as he approached his tree hollow. Something had been here, and perhaps even something was here. He sniffed the air. Yes, something was in his tree hollow, but he could not tell what. It was similar to the scent of the weapon wielders, but not quite the same. He peered inside, and immediately jumped back as he met the face of the Shaman himself.
 
-9 Leutfrid demonstrates his necromantic abilities. Shoo Git is fearful, but curious.
+He stood facing the entrance to the tree hollow, not knowing what to do next. He did not want to fight the Shaman, but he did not want to give up his home, either. It was a good hiding place. Apparently the Shaman agreed with that!
 
-10 Leutfrid connects semi-telepathically to Shoo Git, and teaches a few words.
+The Shaman awkwardly exited the tree hollow. Runt got his first real look at the Shaman. It was about his height, but his body was more similar to the weapon wielders, just smaller. The two beings looked at one another, examining each other, neither one daring to make a quick movement lest they upset the other. This stand-off lasted only moments, but each felt as though hours had passed.
 
-11 The two decide to cooperate.
+Eventually they came to the mutual understanding that neither was going to attack the other, and so the Shaman tapped its thorax with one of its paws and made a sound. Runt did not understand. The Shaman did it again, making the same sound. Suddenly Runt understood. The noise was its designator. Runt wished that he had listened more closely, but he had not been. A third time the shaman tapped its thorax and spoke. "Leutfrid."
+
+Some of the sounds Runt was not sure he would be able to make, but decided to give it a try anyway. "Loot-freed" he intoned as best he could. The Shaman shook its head up and down and grimaced with its teeth. Was it going to attack now? It did not seem so, the Shaman just seemed excited. When it calmed down, it tapped its thorax, repeated "Leutfrid" and then motioned with its paws toward him.
+
+Runt figured it to be asking for his designation. So he barked it. The Shaman attempted to emulate the barks, but failed comically. The Shamans mouth parts were not sophisticated enough for Surit barks, it seemed. He would have to learn its language, as it would not be able to learn his.
+
+In any case, Runt realized, the Shaman was not Enemy, but Ally. And in this strange place, perhaps the closest thing to Tribe that he would be able to find. Both, it seemed, were at odds with the weapon wielders. Both were far from home and trying to survive. They would do better together.
+
+A short time later, the Shaman demonstrated his juju powers over dead things by animating the dead bird, which by this time was getting rather disheveled and unkempt. Runt found this quite impressive, still. The Shaman used the bird to locate its food, which was apparently fungus and growing things. He tried them and was repulsed by them. He showed the Shaman grubs and bugs, but it did not care for them. This is good, Runt thought, we will not compete directly for food.
+
+Over the next few days they hunted and gathered, hiding from the weapon wielder. Runt quickly learned a collection of words from the Shamans language. It was nowhere near enough to get by, but it was a start. Runt wanted a way to communicate with the weapon wielders. They were the dominant Tribe of the area, and it was good to know one's Enemy.

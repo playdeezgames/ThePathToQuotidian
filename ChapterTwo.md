@@ -1,10 +1,16 @@
-# Scene One
+It was Umibrerlug Oakdelver's first assignment on a transport to a foreign destination. Certainly, he had more than a dozen escorts of domestic caravans, but a journey this far from the Karkan hills was a first for him. Not that things had been all that different so far. Even this far south, the Karkan traders were well respected, and there had been little trouble with any of the humans on the route. 
 
-1 Dhongrouc Shattershield, Snakkuk  Copperbane, Habrarlum Earthflayer, Umibrerlug Oakdelver on foot and driving trade cart. Dhon and Snak driving cart, Hab and Umi on foot.
+Dhongrouc Shattershield drove the mules pulling the heavily laden cargo wagon, and Umi was joined on foot as the security detail by Snakkuk Copperbane and Habrarlum Earthflayer. They were nearing the final quarter of their journey, and Umi was looking forward to not constantly be walking. Naturally, walking slowed the potential pace of the mule team, but the trade goods in the wagon were highly valuable, so the Karkan Trade guild did not care how slowly they got to their destination, just that they did make it to their destination.
 
-2 Snak and Hab teasing Umi for his inexperience with women. Dhon remaining silent.
+And in the case of this particular transport, that destination was a place called Quotidian. They would relieve the traders and guardsmen there and allow the incumbent trader and his guards return home with the wagon and mule team. This was the way of Karkan traders. They would spend a month or two there at the trading outpost, and then get relieved in the same fashion, so that they could go home and see their families and wives.
 
-3 Umi thinking of his sweetheart back home, Hasdrouthra Metalbrew. 
+Except that Umi had no wife, at least not yet. He was a young Karkan of no more than forty. It was not unheard of for a Karkan to be married by this age, but it was more usual to wait until nearer to fifty. Two of them, Snak, and Dhon had wives back home, and they complained about them incessantly. Hab looked down upon marriage and considered it a curse to all males so ensnared by it.  Snak and Hab instead made bold claims about their conquests among human women. Umi was relatively certain that these claims were exaggerated, but occasionally he was not so sure.
+
+"So, Umi! Gonna get yourself a tall farmer's daughter on this trip?" Snak taunted. This was a common thing. Umi just remained silent.  Snak and Hab took turns at this. It helped them pass the time, he supposed. He did not mind it, really. He figured it for a rite of passage. One day, he would be married, and give some other young Karkan guff about his marital status as well.
+
+Hab took over "Yeah. If you get a tall one, your face will be in her tits when yer standing face to face." Suddenly Hab whipped his face back and forth and made burbling noises, which caused Snak to laugh again. Dhon said nothing, shaking his head with mild disdain. He never did say anything. He was older and beyond such nonsense, but likely realized there really was not anything to be done about it.
+
+While Umi was not yet married, he did have a girl that he was keen on back home, Hasdrouthra Metalbrew. She was a lovely young Karkan woman with bright blue eyes and long, braided light brown hair. After this haul, Umi stood to be paid quite handsomly for his troubles, and he was indeed considering asking her to marry him, despite his young age. Of course, he would have to keep at this transport guard business for quite some time, but maybe she would have him anyway.
 
 4 Snak complaining about his wife. Hab criticizing marriage.
 
